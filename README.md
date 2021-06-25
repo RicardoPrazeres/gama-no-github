@@ -1,1 +1,1 @@
-Estou achando este curo excelente!!!
+Estou achando este curso excelente!!!
